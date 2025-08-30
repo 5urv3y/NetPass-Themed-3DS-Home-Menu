@@ -1,1 +1,1 @@
-# NetPass-Themed-3DS-Home-Menu
+# NetPass Themed 3DS Home Menu
